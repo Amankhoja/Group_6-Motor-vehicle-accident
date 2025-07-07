@@ -1,1 +1,0 @@
-# Group_6-Motor-vehicle-accident
